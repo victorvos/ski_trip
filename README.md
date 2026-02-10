@@ -31,7 +31,7 @@
 | **Piste-km** | 600 km | 300 km | 305 km | 239 km | 144 km | 360 km (incl. Zermatt) |
 | **Hoogte dorp** | 2.300 m | 2.100 m | 1.304 m | 1.377 m | 1.368 m | 2.006 m |
 | **Hoogte skigebied** | 1.260-3.230 m | 1.550-3.456 m | 1.304-2.811 m | 1.377-2.872 m | 1.350-3.340 m | 2.006-3.883 m |
-| **Skipas 6 dagen** | ~€409 | ~€450 | ~€450 | ~€425 | ~€451 | ~€424 (CHF) |
+| **Skipas 6 dagen** (2025/2026) | ~€409 | ~€450 | ~€450 | ~€425 | ~€451 | ~€424 (CHF) |
 | **Sneeuwzekerheid** | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐ | ⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ |
 | **Après-ski** | ⭐⭐⭐⭐ | ⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐ | ⭐⭐⭐ |
 | **Uitgaan/Nachtleven** | ⭐⭐⭐⭐ | ⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | ⭐⭐⭐⭐⭐ | ⭐⭐⭐ | ⭐⭐ |
@@ -330,7 +330,7 @@
 
 ## 💰 Kostenvergelijking per persoon per week
 
-Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief accommodatie, skipas en basis uitgaven. **Exclusief reis/brandstof.**
+Geschatte kosten per persoon voor een week (gebaseerd op **12 personen**), inclusief accommodatie, skipas en basis uitgaven. **Exclusief reis/brandstof.**
 
 | Kostenpost | Val Thorens | Tignes | St. Anton | Ischgl | Sölden | Cervinia |
 |---|---|---|---|---|---|---|
@@ -340,8 +340,8 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 | **Après-ski budget** | €15-30/dag | €15-25/dag | €20-40/dag | €20-40/dag | €15-25/dag | €10-20/dag |
 | **Totaal schatting/week** | €1.050-1.500 | €1.100-1.550 | €1.100-1.600 | €1.100-1.550 | €900-1.300 | €950-1.400 |
 
-> 💡 **Prijzen 2026/2027 zijn nog niet definitief.** Bovenstaande zijn schattingen gebaseerd op 2025/2026 + 3-6% inflatie.
-> Voor 12 personen gedeelde accommodatie met sauna.
+> 💡 **Prijzen 2026/2027 zijn nog niet definitief.** Bovenstaande zijn schattingen gebaseerd op seizoen 2025/2026 + 3–6% inflatie. Skipas in deze tabel is daarmee iets hoger dan in het [vergelijkingsoverzicht](#-vergelijkingsoverzicht) (dat 2025/2026 vermeldt).  
+> Voor 12 personen gedeelde accommodatie met sauna. **Luxe opties** (bijv. Chalets Cocoon, Chalet Griffin) kunnen boven de genoemde accommodatiebandbreedte liggen.
 
 ---
 
@@ -421,13 +421,15 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 
 ## ⭐ Onze Top 3 Aanbeveling
 
+*Deze top 3 sluit aan op de [geverifieerde accommodaties](#1-val-thorens--les-3-vallées-frankrijk) en [kostenvergelijking](#-kostenvergelijking-per-persoon-per-week) hierboven.*
+
 ### 🥇 1. Val Thorens / Les 3 Vallées - "De Complete Package"
 
 **Waarom:** Het grootste skigebied ter wereld (600 km!) biedt eindeloze variatie voor jullie ervaren groep. Op 2.300 m hoogte is sneeuw gegarandeerd in januari. Goed uitgaansleven met La Folie Douce, veel grote groepsaccommodaties met sauna en ski-in/ski-out. De skipas is ook nog de goedkoopste!
 
 **Voor jullie groep:** Met 4-25 jaar ervaring willen jullie variatie - en die is hier eindeloos. Je kunt elke dag een ander deel van de 3 Vallées verkennen. Après-ski is top, en er zijn voldoende accommodaties voor 10-14 personen in het centrum.
 
-**Actie:** Check [Les Balcons de Val Thorens](https://www.les-balcons.com/en/val-thorens-chalet/) (14 pers, privé sauna, ski-in/ski-out) en [Chalet Plein Sud VII](https://www.allchalets.com/val-thorens) op allchalets.com.
+**Actie:** Check [Les Balcons de Val Thorens](https://www.les-balcons.com/en/val-thorens-chalet/) (14–16 pers, spa, ski-in/ski-out) en [Chalet Plein Sud VII](https://www.allchalets.com/holiday-rentals/36086-apartment-in-val-thorens-france) (14 pers, sauna + pool) op allchalets.com.
 
 ---
 
@@ -437,7 +439,7 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 
 **Voor jullie groep:** Perfect voor ervaren skiërs die houden van steil en offpiste. Na Serfaus vorig jaar is dit een compleet andere ervaring - uitdagender skiën en véél meer feest. De combinatie van wereldklasse skiën en nachtleven is uniek.
 
-**Actie:** Check [Chalet Narnia](https://www.chaletowners.com/chalets/st-anton/) (12-14 pers, sauna) en [Chalet Eisfall](https://www.allchalets.com/st-anton) (tegenover Nassereinbahn).
+**Actie:** Check [Chalet Narnia](https://www.skiinluxury.com/austria/st-anton/chalet-narnia) (12–14 pers, sauna + hot tub) en [Chalet Rendl](https://www.allchalets.com/holiday-rentals/36032-chalet-in-st-anton-austria) of [Haus Eisfall](https://eisfall.com) (naast Nassereinbahn).
 
 ---
 
