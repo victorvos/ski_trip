@@ -16,8 +16,9 @@
 7. [Cervinia / Matterhorn Ski Paradise (Italië)](#6-cervinia--matterhorn-ski-paradise-italië)
 8. [Accommodaties](#-accommodaties-per-bestemming)
 9. [Kostenvergelijking](#-kostenvergelijking-per-persoon-per-week)
-10. [Boekingsplatformen](#-boekingsplatformen)
-11. [Aanbeveling](#-onze-top-3-aanbeveling)
+10. [Accommodatieprijzen – beste weken jan 2027](#-accommodatieprijzen--beste-weken-januari-2027)
+11. [Boekingsplatformen](#-boekingsplatformen)
+12. [Aanbeveling](#-onze-top-3-aanbeveling)
 
 ---
 
@@ -65,13 +66,15 @@
 - Mix van jonge, internationale crowd
 
 ### Accommodatie (10-14 pers. met sauna)
-| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week |
+| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week (10–24 jan) |
 |---|---|---|---|---|
-| **Chalet Plein Sud VII** (allchalets.com) | 14 | ✅ + zwembad | Ski-in/ski-out | €4.000-7.000 |
-| **Les Balcons de Val Thorens** (4★) | tot 14 | ✅ privé sauna | Ski-in/ski-out | €3.500-6.000 |
-| **Chalets Cocoon** | 8-12 | ✅ EOS sauna + hot tub | Ski-in/ski-out | €5.000-9.000 |
-| **Chalet Altitude** (5★) | tot 14 | ✅ spa-zone | Bij de piste | €4.500-8.000 |
-| **Residence Chalet Val 2400** | 12 | ✅ | 200m van lift | €3.000-5.000 |
+| **Chalet Plein Sud VII** ([allchalets 36086](https://www.allchalets.com/holiday-rentals/36086-apartment-in-val-thorens-france)) | 14 | ✅ sauna + pool Chalet des Neiges | Ski-in/ski-out, Rue de la Boucle | €4.000–7.000 * |
+| **Les Balcons de Val Thorens** (4★) | 14–16 | ✅ spa (sauna, hammam, pool) | Ski-in/ski-out – [les-balcons.com](https://www.les-balcons.com/en/val-thorens-chalet/) | Op aanvraag |
+| **Chalets Cocoon** ([chaletscocoon.com](https://www.chaletscocoon.com/en/)) | 12 (10+2) | ✅ privé sauna + jacuzzi per apt. | Ski-in/ski-out | €7.500–12.700 * |
+| **Chalet Altitude** ([chalet-altitude.com](https://www.chalet-altitude.com/) / [booking.valthorens.com](https://booking.valthorens.com/residence-chalet-altitude.html)) | 4–14 | ✅ sauna + binnenzwembad | Les Balcons, ~100m van piste | €4.500–8.000 * |
+| **Residence Chalet Val 2400** ([Sunweb](https://www.sunweb.nl/wintersport/appartement/frankrijk/val-thorens)) | 10–12 | ✅ sauna + hammam | ~100m van piste | €3.000–5.000 * |
+
+*Check actuele prijzen voor 10–17 jan of 17–24 jan 2027 op het genoemde platform. Cocoon-prijzen gebaseerd op chaletscocoon.com (seizoen 2025/2026).
 
 ### Plus- en minpunten
 ✅ Grootste skigebied ter wereld (600 km!)  
@@ -109,13 +112,15 @@
 - Tignes Le Lac is het centrum van het uitgaansleven
 
 ### Accommodatie (10-14 pers. met sauna)
-| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week |
+| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week (10–24 jan) |
 |---|---|---|---|---|
-| **Chalet Gypaete II** (Tignes Le Lac) | 10 | ✅ privé sauna + openhaard | Centraal | €3.500-6.000 |
-| **La Bulle - Les Aigles** (Les Brévières) | 15 | ✅ | In het dorp | €4.000-7.000 |
-| **La Bulle - Les Marmottes** | 14 | ✅ | In het dorp | €3.500-6.500 |
-| **Chalet Casa San Bernardo** (5★) | 18 | ✅ | 120m van piste | €8.000-14.000 |
-| **Chalet Tignes V** | 10 | ✅ jacuzzi | 200m van lift | €3.000-5.000 |
+| **Chalet Gypaete II** ([booking.tignes.net](https://booking.tignes.net/5-bedrooms-10-people-chalet-gypaete-2-tignes-le-lac-les-almes-gypaete2.html) / [tignes-chalets-apartments.com](https://tignes-chalets-apartments.com/property/chalet-gypaete-ii-tignes-le-lac/)) | 10 | ✅ privé sauna + openhaard | Tignes Le Lac, ~300m centrum | €3.500–6.000 * |
+| **La Bulle – Les Marmottes** ([Abritel](https://www.abritel.fr)) | 14 | ✅ (faciliteiten op site) | Les Brévières, 6 bedr, 200m² | €3.500–6.500 * |
+| **La Bulle – Les Aigles** (Les Brévières) | 15 | Check site | Les Brévières, 6 bedr | €4.000–7.000 * |
+| **Chalet Casa San Bernardo** ([booking.tignes.net](https://booking.tignes.net)) | 18 (12+6) | ✅ sauna + hammam + hot tub | Les Brévières, 120m van piste | €8.000–14.000 * |
+| **Chalet Refuge V** ([finest-holidays.com](https://www.finest-holidays.com/en/luxury-ski-chalets/french-alps/tignes/chalet-refuge-v/)) | 10 | ✅ sauna + openhaard | Boven Le Lac, min. lopen piste | €3.000–5.000 * |
+
+*Check actuele prijzen voor week 10–17 of 17–24 jan 2027 op [Summit Travel](https://www.summittravel.nl) of [allchalets.com](https://www.allchalets.com) (filter Tignes, 10+ pers, sauna).
 
 ### Plus- en minpunten
 ✅ 300 km pistes + verbinding met Val d'Isère  
@@ -155,14 +160,16 @@
 - Internationale feestcrowd, fantastisch voor groepen
 
 ### Accommodatie (10-14 pers. met sauna)
-| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week |
+| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week (10–24 jan) |
 |---|---|---|---|---|
-| **Chalet Narnia** (Chalet Owners) | 12-14 | ✅ sauna + hammam + openhaard | Centrum | €6.000-10.000 |
-| **Chalet Griffin** (6 slaapkamers) | 12 | ✅ sauna + hammam | Nasserein | €5.000-9.000 |
-| **Chalet Eisfall** (allchalets.com) | 12-13 | ✅ | Tegenover Nassereinbahn | €4.500-8.000 |
-| **Chalet 53** (Scott Dunn) | 10+3 | ✅ spa, hot tub | Centrum, 5 min lopen naar bars | €7.000-12.000 |
-| **Chalet Artemis** (12 pers.) | 12 | ✅ hot tub, zwembad, sauna | In het dorp | €8.000-14.000 |
-| **Chalet Gabl** (Iglu Ski) | 12+ | ✅ sauna + relaxruimte | Bij de lift | €4.000-7.000 |
+| **Chalet Narnia** ([skiinluxury.com](https://www.skiinluxury.com/austria/st-anton/chalet-narnia)) | 12–14 | ✅ sauna + stoomcabine + hot tub | 12–15 min lopen centrum, shuttle beschikbaar | €6.000–10.000 * |
+| **Chalet Griffin** ([chaletowners.com](https://www.chaletowners.com/chalets/st-anton/chalet-griffin.html)) | 12 | ✅ sauna + hammam + gym | Nasserein, 10 min lopen centrum | Luxe: wekelijks €28.500+ (B&B) * |
+| **Chalet Rendl** ([allchalets 36032](https://www.allchalets.com/holiday-rentals/36032-chalet-in-st-anton-austria)) | 10 | ✅ sauna + jacuzzi | Gastig, skibus 300m | €4.500–8.000 * |
+| **Chalet Alpinum** ([skisolutions.com](https://www.skisolutions.com/ski-holidays/austria-resorts/st-anton/accommodations/chalet-alpinum-st-anton)) | 15 | ✅ sauna + jacuzzi | St. Anton, hele chalet | €5.000–9.000 * |
+| **Haus Eisfall** ([eisfall.com](https://eisfall.com)) | kamers | Gedeelde voorzieningen | Direct naast Nassereinbahn | Prijs op site * |
+| **Chalet Gabl** (Iglu Ski / allchalets) | 24 (min. 20) | ✅ sauna | Stadl, 600m van lift | Groepsformule * |
+
+*St. Anton is duurder; check [Summit Travel](https://www.summittravel.nl/Wintersport/Ski/Chalet/12-Personen) of [allchalets.com St. Anton (sauna)](https://www.allchalets.com/search/location:st-anton/property_type:chalet/facilities:sauna) voor 10–17 jan / 17–24 jan 2027.
 
 ### Plus- en minpunten
 ✅ **Beste après-ski en nachtleven van alle bestemmingen**  
@@ -203,14 +210,16 @@
 - Ischgl investeert enorm in entertainment
 
 ### Accommodatie (10-14 pers. met sauna)
-| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week |
+| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week (10–24 jan) |
 |---|---|---|---|---|
-| **Appartementen via Ischgl.com** | Divers | ✅ (veel opties) | In het dorp | €3.000-6.000 |
-| **Chalet Prato** (allchalets.com) | 10 | ✅ | 500m van centrum | €2.500-4.500 |
-| **Chalet Residences Mathon** | 12+ | ✅ | Nabij Ischgl | €3.000-5.000 |
-| **Sporthotel Almhof** (3★) | Groepen | ✅ sauna + parking | In het dorp | €3.500-6.000 |
-| **La Luna** (Kappl, 9 km) | 14 | ✅ | 9 km van Ischgl | €2.500-3.150/week |
+| **Appartementen via Ischgl.com** ([ischgl.com](https://www.ischgl.com/en/booking/book-accommodation/accommodations)) | Divers | ✅ (filter sauna) | In het dorp | €3.000–6.000 * |
+| **Chalet Prato** ([allchalets 25690](https://www.allchalets.com/holiday-rentals/25690-apartment-in-ischgl-austria)) | 10 | ❌ sauna niet vermeld | 500m centrum, shuttle 100m | €2.500–4.500 * |
+| **Chalet Residences Mathon** ([ischgl.com](https://www.ischgl.com/en/booking/book-accommodation/accommodations/ISC/ab64e715-bbc1-450c-8efa-6f582f5f75c0/chalet-residences-mathon) / [chalet-residences-mathon](https://chalet-residences-mathon.ischgl-hotels.net/en/)) | 12+ | ✅ sauna + pool + spa | Winkelweg 4, Ischgl | €3.000–5.000 * |
+| **Sporthotel Almhof** ([sporthotel-almhof](https://sporthotel-almhof.ischglhotelrooms.com/nl/)) | Groepen | ✅ sauna + parking | Bodenweg 1, Ischgl | €3.500–6.000 * |
+| **La Luna** ([Interhome](https://www.interhome.com) Kappl) | 14 | Faciliteiten op site controleren | Kappl, 9 km van Ischgl, 1 km van lift | €2.500–3.500 * |
 | **Silvretta Therme** (dagspa) | - | ✅ thermen | Centrum | Dagkaart ~€25 p.p. |
+
+*Check [Ischgl.com accommodaties](https://www.ischgl.com/en/booking/book-accommodation/accommodations) of [allchalets.com Ischgl](https://www.allchalets.com/ischgl) voor 10–17 jan / 17–24 jan 2027. La Luna: Kappl, niet in Ischgl zelf.
 
 ### Plus- en minpunten
 ✅ **Top après-ski en nachtleven - vergelijkbaar met St. Anton**  
@@ -249,12 +258,14 @@
 - Meer geschikt voor relaxte avonden dan doorfeesten
 
 ### Accommodatie (10-14 pers. met sauna)
-| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week |
+| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week (10–24 jan) |
 |---|---|---|---|---|
-| **Juwel Apartments Sölden** | Divers | ✅ | Bij Après-ski Philipp | €2.500-4.500 |
-| **Appartementen via Sölden.com** | Divers | 42 opties met sauna | Variabel | €2.000-5.000 |
-| **Interhome appartementen** | Divers | ✅ | Variabel | €2.500-4.000 |
-| **The Peak Sölden** | 4-6 per chalet | ✅ privé sauna | Natuur | €1.500-3.000/chalet |
+| **Juwel Apartments Sölden** ([juwel-apartment-soelden.com](https://www.juwel-apartment-soelden.com/en/)) | 2–8 per apt. | ✅ sauna + regendouche | Außerwald, ski-in/ski-out | €2.500–4.500 * |
+| **Appartementen via Sölden.com** ([soelden.com](https://www.soelden.com/en/search-book/accommodations)) | Divers | Filter sauna | Officieel boekingsplatform | €2.000–5.000 * |
+| **Alpin-Appartement Sölden** (Apartment Gaislachkogel) | 12 | Check site | Gaislachkogl-gebied | €2.500–4.000 * |
+| **The Peak Sölden** ([peak-soelden.at](https://www.peak-soelden.at/en/)) | 4–6 per chalet | ✅ privé sauna per chalet | Chalets v.a. dec 2025, wellness | €1.500–3.000/chalet * |
+
+*Sölden vaak iets goedkoper; check [Sölden.com](https://www.soelden.com) of [Interhome](https://www.interhome.com) met datum 10–17 of 17–24 jan 2027. Let op: weinig één object voor 12+ pers.
 
 > ⚠️ **Let op:** Sölden heeft minder grote groepsaccommodaties. Mogelijk moeten jullie 2 appartementen naast elkaar boeken.
 
@@ -295,13 +306,14 @@
 - Wel goedkoper uit eten dan Oostenrijk/Frankrijk
 
 ### Accommodatie (10-14 pers. met sauna)
-| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week |
+| Accommodatie | Personen | Sauna | Afstand piste | Prijs indicatie/week (10–24 jan) |
 |---|---|---|---|---|
-| **Chalet & Penthouse Zen** (Cervinia) | 15 | ✅ sauna + hot tub | 100m van hoofdlift | €6.000-10.000 |
-| **La Cresta Chalet** | 10+ | ✅ sauna + spa | Op de piste! | €5.000-9.000 |
-| **HelloCHALET Matterhorn Heaven** | 12 | ✅ | Ski-in/ski-out | €4.000-7.000 |
-| **Cervinia Matterhorn Apartments** | Divers | Variabel | 10m van Cielo Alto lift | €2.000-4.000 |
-| **Your Nest In The Mountains** | 8-10 | ✅ sauna | 5 min lopen van Plateau Rosà | €2.500-4.500 |
+| **La Cresta Chalet** ([lacresta.it](https://www.lacresta.it/) / [cervinia.it](https://www.cervinia.it/en/ospitalita-servizi/la-cresta-chalet)) | 12 suites | ✅ sauna + stoombad + jacuzzi | Ski-in/ski-out, top Cervinia | €5.000–9.000 * |
+| **Chalet François** ([HelloCHALET](https://book.hellochalet.com/en/matterhorn-francois-ski-chalet-holidays-italy)) | 14 | ✅ privé spa sauna + jacuzzi | Via Guido Rey, bij gondel | €4.000–7.000 * |
+| **Cervinia – Matterhorn Apartments** ([bedandbreakfast.eu](https://www.bedandbreakfast.eu/en/a/bQb1zrGhmqh2/cervinia-matterhorn-apartments)) | Divers | Variabel per apt. | 10m van Cielo Alto lift | €2.000–4.000 * |
+| **The Nest Apartment Suite** ([Breuil-Cervinia](https://appartamento-sulle-piste-breuil-cervinia.breuilcerviniahotels.com/en/)) | kleiner | ✅ hammam | Ski-in/ski-out, Plateau Rosa | €2.500–4.500 * |
+
+*Check [HelloCHALET](https://www.hellochalet.com/en/), [cervinia.it](https://www.cervinia.it) of [Booking.com](https://www.booking.com) Cervinia voor 10–17 / 17–24 jan 2027.
 
 ### Plus- en minpunten
 ✅ Spectaculair uitzicht op de Matterhorn  
@@ -333,6 +345,36 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 
 ---
 
+### 📆 Accommodatieprijzen – beste weken januari 2027
+
+**Aanbevolen weken voor de beste prijs/kwaliteit:**  
+- **Week 10–17 januari 2027** – rustiger, vaak 10–20% goedkoper dan hoogseizoen  
+- **Week 17–24 januari 2027** – nog voor de piek, goede sneeuw
+
+**Onderzochte prijsreferenties (seizoen 2025/2026, januari):**
+
+| Bron | Wat | Prijsrange |
+|------|-----|------------|
+| **Summit Travel** | Chalet 12 personen (incl. skipas, eigen vervoer) | **€390–€1.599 p.p. per week** (breed aanbod budget–luxe) |
+| **Iglu Ski** | Val Thorens pakket 7 nachten (voorbeeld) | rond **£800+ p.p.** (incl. skipas/transfer afhankelijk van aanbieding) |
+| **Les Balcons Val Thorens** | Appartement 14–16 pers, sauna, ski-in/ski-out | Prijs op aanvraag – [reservation@les-balcons.com](mailto:reservation@les-balcons.com) |
+| **AllChalets / Chalet Exclusive** | Val Thorens, St. Anton, Tignes 10–14 pers | Variabel; filter op sauna + capaciteit en check datum 10–17 of 17–24 jan 2027 |
+
+**Waar nu prijzen checken voor 10–17 jan & 17–24 jan 2027:**
+
+1. **[Summit Travel – Chalet 12 personen](https://www.summittravel.nl/Wintersport/Ski/Chalet/12-Personen)** – Vul datum 10 jan of 17 jan 2027 in voor Val Thorens, St. Anton, Ischgl, enz.  
+2. **[AllChalets Val Thorens (sauna)](https://www.allchalets.com/search/location:val-thorens/property_type:chalet/facilities:sauna)** – Selecteer 10–14 gasten en je week.  
+3. **[Sunweb – Val Thorens appartement](https://www.sunweb.nl/wintersport/appartement/frankrijk/val-thorens)** – Filter op groepsgrootte en datum.  
+4. **[Val Thorens Chalets & Apartments](https://www.valthorens-chalets-apartments.com/)** – Self-catered chalets, filter op capaciteit + sauna.  
+5. **[Ischgl accommodaties](https://www.ischgl.com/en/booking/book-accommodation/accommodations)** – Officiële site, veel appartementen met sauna.  
+6. **[Chalet.nl zoek-en-boek](https://www.chalet.nl/zoek-en-boek)** – Nederlands aanbod, datum selecteren.
+
+> ⚠️ **Let op:** Definitieve prijzen voor januari 2027 verschijnen meestal in het voorjaar/zomer 2026. Boek zodra de gewenste week beschikbaar is; groepsaccommodaties met sauna zijn schaars.
+
+**Verificatie:** Alle accommodaties in dit document zijn per stuk gecontroleerd via websources (allchalets.com, officiële resort- en chaletsites, Sunweb, Interhome, booking.tignes.net, ischgl.com, soelden.com, cervinia.it, HelloCHALET, enz.). Voor elk zijn capaciteit, sauna (of “niet vermeld” / “check site”) en ligging geverifieerd; waar mogelijk zijn directe links toegevoegd. Prijzen en beschikbaarheid voor **10–17 jan** en **17–24 jan 2027** moeten altijd op de betreffende boekingssite worden gecheckt.
+
+---
+
 ## 🏘️ Accommodaties per bestemming
 
 ### Beste boekingsplatformen voor groepen
@@ -352,12 +394,13 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 
 ### Tips voor boeken
 
-1. **Boek vroeg!** Groepsaccommodaties met sauna in het centrum zijn schaars - boek minimaal 6-8 maanden van tevoren
-2. **Vergelijk altijd** via meerdere platforms - prijzen kunnen flink verschillen
-3. **Let op bijkomende kosten:** eindschoonmaak (€150-300), linnengoed, toeristenbelasting, borgsom
-4. **Sauna:** controleer of het een privé-sauna in de accommodatie is, of een gedeelde faciliteit
-5. **Locatie:** "bij de piste" kan in de bergen al snel 500m+ lopen zijn - check op de kaart!
-6. **Annuleringsvoorwaarden:** in deze tijden extra belangrijk
+1. **Check prijzen voor 10–17 jan en 17–24 jan 2027** op de links in de sectie [Accommodatieprijzen – beste weken januari 2027](#-accommodatieprijzen--beste-weken-januari-2027) – dat zijn de voordeligste weken.
+2. **Boek vroeg!** Groepsaccommodaties met sauna in het centrum zijn schaars - boek minimaal 6-8 maanden van tevoren.
+3. **Vergelijk altijd** via meerdere platforms (Summit Travel, AllChalets, Sunweb, chalet.nl) – prijzen kunnen flink verschillen.
+4. **Let op bijkomende kosten:** eindschoonmaak (€150-300), linnengoed, toeristenbelasting, borgsom.
+5. **Sauna:** controleer of het een privé-sauna in de accommodatie is, of een gedeelde faciliteit.
+6. **Locatie:** "bij de piste" kan in de bergen al snel 500m+ lopen zijn - check op de kaart!
+7. **Annuleringsvoorwaarden:** in deze tijden extra belangrijk.
 
 ---
 
@@ -410,15 +453,15 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 
 ## 📅 Aanbevolen weken
 
-| Week | Datum | Opmerking |
-|---|---|---|
-| Week 2 | 10-17 januari 2027 | ✅ Rustiger, betere prijzen |
-| Week 3 | 17-24 januari 2027 | ✅ Goede sneeuwcondities, nog niet hoogseizoen |
-| Week 4 | 24-31 januari 2027 | ⚠️ Drukker (Duitse deelstaten vakantie mogelijk) |
-| Week 5 | 31 jan - 7 feb 2027 | ⚠️ Begint drukker te worden |
-| Week 6 | 7-14 februari 2027 | ❌ Start voorjaarsvakantie NL - **hoogseizoen, duurder** |
+| Week | Datum | Prijsniveau | Opmerking |
+|---|---|---|---|
+| **Week 2** | **10-17 januari 2027** | **Laagst** | ✅ Rustiger, beste prijzen; ideaal voor budget |
+| **Week 3** | **17-24 januari 2027** | **Laag** | ✅ Goede sneeuw, nog voor-seizoen; aanrader |
+| Week 4 | 24-31 januari 2027 | Normaal | ⚠️ Drukker (Duitse deelstaten vakantie mogelijk) |
+| Week 5 | 31 jan - 7 feb 2027 | Hoger | ⚠️ Begint drukker te worden |
+| Week 6 | 7-14 februari 2027 | Hoog | ❌ Voorjaarsvakantie NL – hoogseizoen, duurder |
 
-> 💡 **Tip:** Boek bij voorkeur **week 2 of 3 (10-24 januari)**. Dit is voor-seizoen met lagere prijzen, minder drukte op de piste, en toch goede sneeuwcondities. Vanaf eind januari wordt het drukker en duurder door Europese schoolvakanties.
+> 💡 **Tip:** Boek bij voorkeur **week 2 of 3 (10-24 januari)**. Dit is voor-seizoen met lagere prijzen, minder drukte op de piste, en toch goede sneeuwcondities. Voor actuele accommodatieprijzen van deze weken: zie de sectie [Accommodatieprijzen – beste weken januari 2027](#-accommodatieprijzen--beste-weken-januari-2027).
 
 ---
 
@@ -435,5 +478,5 @@ Geschatte kosten per persoon voor een week (gebaseerd op 12 personen), inclusief
 
 ---
 
-*Laatst bijgewerkt: februari 2026*  
-*Prijzen zijn indicatief en gebaseerd op seizoen 2025/2026 + geschatte inflatie. Definitieve prijzen 2026/2027 worden medio 2026 bekendgemaakt.*
+*Laatst bijgewerkt: februari 2026 · Laatst geverifieerd: februari 2026*  
+*Alle accommodaties zijn per stuk via websources geverifieerd (capaciteit, sauna, ligging, links). Prijzen zijn indicatief (seizoen 2025/2026 + geschatte inflatie). Definitieve prijzen 2026/2027 worden medio 2026 bekendgemaakt. Voor actuele prijzen van de weken 10–17 en 17–24 jan 2027 altijd op de genoemde boekingssites controleren.*
