@@ -361,7 +361,7 @@ De onderstaande bedragen zijn **gevonden via web search** (februari 2025) en die
 | **Val Thorens – budget appartement 4–5 pers.** | **€88–€155** per nacht → ca. **€616–€1.085** per week | [Eurochalets](https://www.eurochalets.nl/wintersport/frankrijk/valthorens); schaal naar 10–14 pers. geeft grotere totaalbedragen |
 | **Val Thorens – luxe chalet 8–10 pers.** | **€20.000–€32.000** per week (€2.000–€4.000 pp) | Chalet Orlov e.d.; [wintersportdeluxe.nl](https://wintersportdeluxe.nl) / Chalet.nl |
 
-**Conclusie voor jullie groep (10–14 pers.):** Reken voor een **mid-range chalet met sauna** grofweg **€400–€700 per persoon per week** (accommodatie, vaak incl. skipas bij package). Val Thorens en Oostenrijk (Sölden, Ischgl) vallen vaak in het midden; St. Anton en luxe opties zitten hoger. Januari (10–17 of 17–24) is vaak 10–20% goedkoper dan hoogseizoen.
+**Conclusie voor jullie groep (10–14 pers.):** Reken voor een **mid-range chalet met sauna** grofweg **€400–€700 per persoon per week** (accommodatie, vaak incl. skipas bij package). Val Thorens en Oostenrijk (Sölden, Ischgl) vallen vaak in het midden; St. Anton en luxe opties zitten hoger. Januari (10–17 of 17–24) is vaak 10–20% goedkoper dan hoogseizoen. **Les Balcons de Val Thorens** (14–16 pers., spa, ski-in/ski-out): indicatie **€531 pp/week incl. skipas** (Summit Travel) of **€644–€737 per week** voor een appartement 10–16 pers. (Chalet.nl); er is geen aparte “8 maanden van tevoren”-tarief gepubliceerd – check voor jouw week op [Summit Travel](https://www.summittravel.nl/Wintersport/Ski/Frankrijk/Les-Trois-Vallees/Val-Thorens/Chalet-les-Balcons) of [Chalet.nl](https://www.chalet.nl/frankrijk/les-trois-vallees/val-thorens/les-balcons-de-val-thorens-f16).
 
 ---
 
@@ -483,7 +483,7 @@ Filter op **datum (10–17 of 17–24 jan 2027)**, **aantal gasten** en **sauna*
 
 **Voor jullie groep:** Met 4-25 jaar ervaring willen jullie variatie - en die is hier eindeloos. Je kunt elke dag een ander deel van de 3 Vallées verkennen. Après-ski is top, en er zijn voldoende accommodaties voor 10-14 personen in het centrum.
 
-**Actie:** Check [Les Balcons de Val Thorens](https://www.les-balcons.com/en/val-thorens-chalet/) (14–16 pers, spa, ski-in/ski-out) en [Chalet Plein Sud VII](https://www.allchalets.com/holiday-rentals/36086-apartment-in-val-thorens-france) (14 pers, sauna + pool) op allchalets.com.
+**Actie:** Check [Les Balcons de Val Thorens](https://www.les-balcons.com/en/val-thorens-chalet/) (14–16 pers, spa, ski-in/ski-out) en [Chalet Plein Sud VII](https://www.allchalets.com/holiday-rentals/36086-apartment-in-val-thorens-france) (14 pers, sauna + pool) op allchalets.com. Voor Les Balcons: indicatie **€531 pp incl. skipas** (Summit Travel) of **€644–€737/week** (10–16 pers., Chalet.nl); er is geen aparte prijs voor “8 maanden van tevoren” – vul op [Summit Travel](https://www.summittravel.nl/Wintersport/Ski/Frankrijk/Les-Trois-Vallees/Val-Thorens/Chalet-les-Balcons) of [Chalet.nl](https://www.chalet.nl/frankrijk/les-trois-vallees/val-thorens/les-balcons-de-val-thorens-f16) jouw week in voor de actuele prijs.
 
 ---
 
